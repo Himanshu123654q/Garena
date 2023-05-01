@@ -1,2 +1,6 @@
-# Garena
-Get 200 diamonds 💎💎 ✓ free fire login id 
+ 💎💎💎💎 # Garena # 💎💎💎💎💎
+
+     Get 200 diamonds 💎💎 ✓
+                 
+                 free fire login id 💎
+
